@@ -1,0 +1,1 @@
+hi, i'm **mati**. i'll add a decent self-introduction and list the things that i work on and that i like here really soon, but for now, i'll just leave this as a kind of placeholder. if you want to talk to me on discord, add me at @kiiragihirai there, please!
